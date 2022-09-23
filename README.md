@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @tinghayden
+- 👀 I’m interested in desktop
+- 🌱 I’m currently learning desktop coding
+- and I hate ads
